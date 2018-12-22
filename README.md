@@ -1,2 +1,0 @@
-# QRDV.github.io
-Открытка
